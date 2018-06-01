@@ -1,3 +1,3 @@
-Hi! Đoạn code sẽ giúp các bạn có bạn gái nhanh hơn bao giờ hết =))))
+Hi! Download, giải nén rồi chạy index.html 
 #loveproject
 by Trinh Duc Tri
